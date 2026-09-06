@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **debmalya1262006@gmail.com**
 
-- 📄 Know about my experiences [https://in.linkedin.com/in/debmalyaghosh12?utm_source=chatgpt.com](https://in.linkedin.com/in/debmalyaghosh12?utm_source=chatgpt.com)
+- 📄 Know about my experiences [https://in.linkedin.com/in/debmalyaghosh12?utm_source=chatgpt.com](https://in.linkedin.com/in/debmalyaghosh12)
 
 - ⚡ Fun fact **I enjoy turning ideas into projects, from AI-powered applications to research-driven solutions.**
 
